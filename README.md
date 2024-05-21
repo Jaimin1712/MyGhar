@@ -108,7 +108,7 @@
 
 ## Contact
 
-Prakash Patel - [@linkedin](https://www.linkedin.com/in/prakash-patell/) - jaiminkoshti44@gmail.com
+Jaimin Koshti - https://www.linkedin.com/in/jaimin-koshti-371675218/ - jaiminkoshti44@gmail.com
 
 ### !NO SOURCE CODE(CAN BE USED BY OTHERS IF DECLARED)
 
